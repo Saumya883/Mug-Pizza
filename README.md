@@ -12,6 +12,7 @@ One tablespoon marinara sauce
 One tbsp. shredded mozzarella cheese
 Five mini pepperoni
 ½ tsp. dried herbs
+
 Time Needed: Fifteen minutes
 
 Servings: One
